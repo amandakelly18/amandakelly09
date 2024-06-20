@@ -1,8 +1,9 @@
 # amandakelly09
-Amanda kelly de oliveira 💟
-tenho 17 anos 🫶
+❤️‍🔥✝️A manda kelly de oliveira 💟 
+
+tenho 17 anos🍫🫶
 CEDAB🪻
 2 ano do ensino médio🥀
 cruzeiro do iguaçu🌹
 
-"Os planos de Deus são justos e certeiros! Tenha fé e confiança 🩷🧡💛💚💙🩵💜🤎🖤🩶🤍
+"Os planos de Deus são justos e certeiros! Tenha fé e confiança🧡💛💚💙🩵💜🤎🖤🩶🤍
