@@ -10,5 +10,7 @@ CEDAB🪻
 cruzeiro do iguaçu🌹
 
 "Os planos de Deus são justos e certeiros! Tenha fé e confiança 
-                    🧡💛💚💙🩵💜🤎🖤🩶🤍
-A força mais potente do universo é a fé.
+
+ 🧡💛💚💙🩵💜🤎🖤🩶🤍        A força mais potente do universo é a fé.
+                    
+
