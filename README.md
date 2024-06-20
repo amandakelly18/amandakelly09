@@ -1,7 +1,7 @@
 # amandakelly09
 ❤️‍🔥✝️A manda kelly de oliveira...💟 
 
-tenho 17 anos...🍫🫶
+ 17 anos...🍫🫶
 
 CEDAB...🪻
 
